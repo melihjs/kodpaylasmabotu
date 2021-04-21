@@ -9,9 +9,9 @@
 
 💥 Ghost & Archéx Development!
 
-:hammer_pick: [**Ghost Development**](https://discord.gg/KMJCshWX4D)
+⚒️ [**Ghost Development**](https://discord.gg/KMJCshWX4D)
 
 **🔧 Made by** : [ArchexMelih](https://youtube.com/c/archéxmelih) ,
          [ArchexKaan](https://www.youtube.com/channel/UC9HFT7vVnIgf_w9kr41OIuA)  
              
- **💡 SSS** : [Come this guild](https://discord.gg/wn3mqc87zR)
+ **💡 SSS** : [Come this guild](https://discord.gg/wn3mqc87zR) | [Bu sunucuya gel](https://discord.gg/wn3mqc87zR)
