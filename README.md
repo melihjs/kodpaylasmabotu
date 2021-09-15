@@ -5,11 +5,11 @@
 🔧 Archex Team <3
 
 **📣 [Click Websites](http://www.archexlist.tk)**
-**📣 [Discord Server](https://discord.gg/qDsQzjb5gN)**
+**📣 [Discord Server](https://discord.gg/SGdy3jtMCB)**
 
 💥 Ghost & Archéx Development!
 
-⚒️ [**Ghost Development**](https://discord.gg/KMJCshWX4D)
+⚒️ [**Ghost Development**](https://discord.gg/SGdy3jtMCB)
 
 **🔧 Made by** : [ArchexMelih](https://youtube.com/c/archéxmelih) ,
          [ArchexKaan](https://www.youtube.com/channel/UC9HFT7vVnIgf_w9kr41OIuA)  
